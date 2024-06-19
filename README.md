@@ -2,9 +2,9 @@
 
 ---
 
-**Location:** Santiago del Estero - Argentina  
+**Location:** Santiago del Estero - Argentina
 **Contact:** afurmatias@gmail.com
-**LinkedIn:** [linkedin.com/in/matiasafur](https://www.linkedin.com/in/matiasafur)  
+**LinkedIn:** [linkedin.com/in/matiasafur](https://www.linkedin.com/in/matiasafur)
 **Date of Birth:** 24th of August 1994
 
 ---
